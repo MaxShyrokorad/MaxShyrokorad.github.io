@@ -1,1 +1,0 @@
-# MaxShyrokorad.github.io
